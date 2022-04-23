@@ -1,4 +1,4 @@
-# Diamond-Fuji_Mihama-Ohashi_2021-02
+# Diamond-Fuji_Mihama-Ohashi-Bridge_2021-02
 千葉県・美浜大橋のダイヤモンド富士：2021年2月21日
 
 ![Diamond-Fuji_Mihama-Ohashi-Bridge_2021-02-21_01](https://user-images.githubusercontent.com/20723919/164883225-02ed8038-60a9-40cf-93fa-2f75d01f988a.JPG)

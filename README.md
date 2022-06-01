@@ -1,4 +1,7 @@
 # Diamond-Fuji_Mihama-Ohashi-Bridge_2021-02
+CC-BY-4.0 - RuinDig/Yuki Uchida
+<div style="text-align: center;"><a href="https://creativecommons.org/licenses/by/4.0/deed.ja"><img src="https://user-images.githubusercontent.com/20723919/145936543-577c7705-90e2-4d56-ad5d-26b0fbcea02d.png" /></a></div>
+
 千葉県・美浜大橋のダイヤモンド富士：2021年2月21日
 
 https://user-images.githubusercontent.com/20723919/164886303-128595d3-0548-4571-a660-155b2ddfeebb.MP4
